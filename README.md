@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Anderson-Leall 😁
+## Bem-vindo(a) ao perfil do Anderson-Leall ⚡
 
   <div>
   <a href="https://github.com/Anderson-Leall">
